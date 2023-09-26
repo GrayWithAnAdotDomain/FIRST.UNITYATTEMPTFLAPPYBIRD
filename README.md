@@ -1,3 +1,4 @@
 # FIRST.UNITYATTEMPTFLAPPYBIRD
 
-hey kai smile
+i know what you are 
+smile
